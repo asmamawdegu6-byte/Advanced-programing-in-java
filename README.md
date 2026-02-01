@@ -1,2 +1,2 @@
 # Advanced-programing-in-java
-3rd year 2 semester
+ I am Asmamaw Degu 3rd year 2nd semester student 
